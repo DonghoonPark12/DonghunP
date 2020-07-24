@@ -18,3 +18,7 @@ Here are some ideas to get you started:
 https://dhpark1212.tistory.com/
 
 https://www.buymeacoffee.com/6JoE8gjtQ
+
+
+**서평 이벤트**  
+https://blog.naver.com/booksr29/222038421679
