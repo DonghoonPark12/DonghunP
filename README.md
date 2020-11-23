@@ -15,7 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-https://dhpark1212.tistory.com/
-
 https://www.buymeacoffee.com/6JoE8gjtQ
 
